@@ -32,12 +32,6 @@ Harsha Vardhan Akula - 2200032531
 <img width="953" alt="pro7" src="https://github.com/user-attachments/assets/97ac8cc4-fb75-4057-b689-1ed79bbfd44f">
 
 
-<img width="946" alt="pro8" src="https://github.com/user-attachments/assets/81571c18-b450-4b54-8e9e-94dfc17a6b1e">
-
-
-<img width="959" alt="pro9" src="https://github.com/user-attachments/assets/802f5fc9-680b-4b2b-bfb1-06388364ec49">
-
-
 <img width="949" alt="pro10" src="https://github.com/user-attachments/assets/e7631696-8534-44c5-ae65-d7cb8747f92e">
 
 
